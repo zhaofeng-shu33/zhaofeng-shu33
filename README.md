@@ -1,4 +1,4 @@
-### Hi I'am zhaofeng-shu33
+### Hi I'm zhaofeng-shu33
 
 Ph-D student, currently based in Shenzhen.
 
